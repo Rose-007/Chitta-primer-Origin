@@ -3,7 +3,7 @@
 ## Written by Phutthaphot Trakunthong (original post: Facebook, พุฒพส ตระกูลทอง)
 Translated by Claude (AI by Anthropic)
 [[Original post (Thai)](https://www.facebook.com/share/p/1Dxpvj9G2b/)](
-![](Chitta()primer&Origin.jpg)
+![](Chitta()primer&Origin.png)
 
 ✍️ Primordial Mind and the First Creation
 
